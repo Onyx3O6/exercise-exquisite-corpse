@@ -13,3 +13,4 @@ La sorcière, touchée par leur courage et leur détermination, décida finaleme
 
 De retour dans le village, les habitants virent la petite fille maudite transformée, débarrassée de son fardeau. Ils réalisèrent que les préjugés et les histoires effrayantes étaient sans fondement. La petite fille avait trouvé l'amitié et l'amour, et le village était désormais uni dans la joie et la solidarité.
 
+*Tout le monde* la fuyait comme la **peste**, pas une seule âme osait ne serait-ce que *regarder* dans sa direction **par peur d'être _maudit_ avec elle**. Elle qui se sentait si seule désirait seulement un peu de **chaleur**. Elle qui priait de tout son être pour un **ami*, vu son souhait *exaucé*.
