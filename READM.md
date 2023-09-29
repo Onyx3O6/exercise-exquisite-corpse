@@ -14,3 +14,5 @@ La sorcière, touchée par leur courage et leur détermination, décida finaleme
 De retour dans le village, les habitants virent la petite fille maudite transformée, débarrassée de son fardeau. Ils réalisèrent que les préjugés et les histoires effrayantes étaient sans fondement. La petite fille avait trouvé l'amitié et l'amour, et le village était désormais uni dans la joie et la solidarité.
 
 *Tout le monde* la fuyait comme la **peste**, pas une seule âme osait ne serait-ce que *regarder* dans sa direction **par peur d'être _maudit_ avec elle**. Elle qui se sentait si seule désirait seulement un peu de **chaleur**. Elle qui priait de tout son être pour un **ami**, vu son souhait *exaucé*.
+
+Cette joyeuse tradition intergalactique s'est perpétuée, chaque année, avec **le pingouin à roulettes** et ses amis lapins à la tête de la célébration, rappelant aux habitants de l'univers l'importance de la danse, de l'amitié et de l'exploration. Leurs pas de danse ont créé une mélodie unique, qui résonne à travers les galaxies, rappelant à tous que, même dans l'espace infini, l'amour et l'harmonie sont les étoiles qui guident notre chemin.
